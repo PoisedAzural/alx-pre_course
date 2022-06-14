@@ -1,1 +1,1 @@
-This thing don do me sege
+This thing don do me sege gan ni
